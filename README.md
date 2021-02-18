@@ -9,3 +9,6 @@ This is only for educational purposes, ddosing is bad.
 Warning:
 People have gone to prison for this ( Still have ) 
 ** This is for educational purposes ONLY **
+===========================================
+This is not made by me it's made by Xeno not me.
+I shared it for educational purposes
